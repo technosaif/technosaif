@@ -1,5 +1,5 @@
 # 💫 About Me:
-4th Year B.E student 👨‍🎓<br>Google DSC Core Team Member ( Full Stack Developer )<br>Tech Enthusiast 🧑‍💻<br>Freelancer 💼<br>Checkout my Portfolio @kabeer.social 👤
+4th Year B.E student 👨‍🎓<br>Google DSC Core Team Member ( Cloud Lead )<br>Tech Enthusiast 🧑‍💻<br>Freelancer 💼<br>Checkout my Portfolio l 👤
 
 
 ## 🌐 Socials:
